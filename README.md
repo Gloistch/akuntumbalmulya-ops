@@ -1,5 +1,5 @@
 # 👤 About Me:
-i dunnow, i js try my best every day 😊😊
+lemme thin 'bout my future first, cuz i dunno what should i do rn 😊😊
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/@gloistch) 
